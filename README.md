@@ -2,7 +2,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 ====================================================================================================================================
 
 * 🌍  I'm based in Montenegro
-* ✉️  You can contact me at [anocoka@gmail.com](mailto:anocoka@gmail.com)
+* ✉️  You can contact me at [anescokovic1318@gmail.com](mailto:anescokovic1318@gmail.com)
 
 ### Skills
 
